@@ -14,3 +14,6 @@ Thank you for considering my request. Please let me know if there’s any additi
 
 Best regards,
 Rahul Yadav
+
+
+To assist, I am attaching a letter of recommendation from a colleague as an example. While the content would, of course, reflect my work and contributions, I hope this document provides a useful reference for structuring the letter.
